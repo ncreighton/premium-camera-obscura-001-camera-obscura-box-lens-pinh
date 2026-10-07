@@ -1,0 +1,2 @@
+# premium-camera-obscura-001-camera-obscura-box-lens-pinh
+You're passionate about analog photography and DIY optics, but tracking lens specifications, pinhole diameters, and build experiments across scattered notes is killing your creative flow. The Camera Obscura Box &amp; Lens Pinhole Craft Hub transforms your Notion workspace into a centralized command center for every camera obscura project.  This purpose
